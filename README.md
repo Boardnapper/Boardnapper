@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning more about coding
 - 🌱 I’m currently studying for the CCNA and SEC+ exams
 - 💞️ I’m looking to collaborate on projects that would help me learn new skills
-- 📫 How to reach me - blair.carter.2023@icloud.com  
+- 📫 How to reach me - helmethazer@yahoo.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: nothing fun about me
 
